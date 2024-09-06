@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Cloud Engineering
 - 💞️ I’m looking to collaborate on several projects with different people 
 - 📫 You can reach me on 07039814476, afolabivictoroladimeji@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm gentle, slow to anger, pay attention to details, love to execute jobs, a perfectionist and lover of God & love
 
 <!---
